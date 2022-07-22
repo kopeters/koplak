@@ -1,2 +1,2 @@
 # koplak
-follow me
+dont forget to subscribe my youtube channel "koplakers"
